@@ -1,1 +1,0 @@
-# pskote.github.io
